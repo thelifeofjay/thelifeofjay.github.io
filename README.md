@@ -1,1 +1,1 @@
-The website of James DOnaldson (link and files to be added soon)
+The website of James Donaldson (link and files to be added)
